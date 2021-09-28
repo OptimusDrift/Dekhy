@@ -3,5 +3,5 @@ Uno de mis repositorios favoritos, no por ser bueno, sino, por ser totalmente ch
 
 ## Contenidos:
 > Alta cantidad de 🥔🥔🥔🥔🥔🥔🥔🥔🥔🥔🥔🥔🥔🥔🥔🥔🥔🥔🥔.
-Nada de 🍟, son malas para la salud.
-Alguna que otra papa rara 🍠.
+> Nada de 🍟, son malas para la salud.
+> Alguna que otra papa rara 🍠.
